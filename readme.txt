@@ -1,2 +1,0 @@
-Mike Staub
-Chicago Cubs
